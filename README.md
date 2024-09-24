@@ -9,3 +9,5 @@ Meu nome é Lucas
 ### Você entrar em contato comigo 📫
 
 lucasviniciusribeirosilva986@gmail.com
+
+![.] (https://tenor.com/pt-BR/view/goku-dance-fortnite-djrobe-transparent-gif-2382770156052989277)
