@@ -10,4 +10,4 @@ Meu nome é Lucas
 
 lucasviniciusribeirosilva986@gmail.com
 
-![](https://tenor.com/pt-BR/view/almagne-dancing-fortnite-moves-grooves-gif-15750164)
+![](https://tenor.com/pt-BR/view/goku-dance-fortnite-djrobe-transparent-gif-2382770156052989277)
